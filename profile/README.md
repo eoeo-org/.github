@@ -1,3 +1,3 @@
 j organization.  
-no nekopara, no life.
+no nekopara, no life.  
 j.
